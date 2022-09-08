@@ -7,4 +7,4 @@
 **BEEP** *boop* **BAP** :robot:
 
 ##### I love my cat:
->image to be added when i figure out how to
+![19112DEE-5FC7-439D-87DA-3CD0428EEF21](https://user-images.githubusercontent.com/112982014/189030179-64b77fee-4033-4dfa-9598-ff9d2a15b94d.jpg)
