@@ -5,7 +5,11 @@ People just call me O.B for short
 Currently enrolled in Raritan Valley Community College and love to learn
 
 My Goals:
-Create a video game (2%)
+
+Create a video game (60%)
+Work on my Art (...)
+Create a Full Version video game (0%)
+Release a game on steam (0%)
 
 ## Some other things I love are: 
 
